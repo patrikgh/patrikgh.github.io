@@ -1,2 +1,2 @@
-# patrikgh-github.io
+# patrikgh.github.io
 Min sida
